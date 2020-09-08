@@ -1,4 +1,4 @@
-## **Thinking about leaving law enforcement? You aren’t alone.** 
+## **Thinking about leaving law enforcement?** 
 
  You aren’t alone. In the last two months, I’ve had more cops than ever reach out asking how I made the transition from law enforcement to the private sector. It can be challenging - a recruiter once told me that no company wants to be the first to hire a candidate right out of law enforcement; too many don’t make a successful transition to the private sector. What can you do to improve your chances of landing and succeeding a private sector security role?
 
