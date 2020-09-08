@@ -2,7 +2,7 @@
 
  You aren’t alone. In the last two months, I’ve had more cops than ever reach out asking how I made the transition from law enforcement to the private sector. It can be challenging - a recruiter once told me that no company wants to be the first to hire a candidate right out of law enforcement; too many don’t make a successful transition to the private sector. What can you do to improve your chances of landing and succeeding a private sector security role?
 
-**Here’s my top five tips to help you successfully make the switch:**
+**Here’s five tips to help you successfully make the switch:**
 
 1. **Plan ahead.** 
      Don’t wait until you are 20 years in to think about what you want to do next. Expand your skill set throughout your career.  Identify and work to fill gaps in your skills to make you a better candidate for future private sector roles. Take advantage of free training opportunities (OSHA, FEMA, etc) but also invest in your own development by completing industry certifications like Certified Fraud Examiner or Certified Protection Professional.  Volunteer for non-profits like Team Rubicon where you can gain additional training in crisis management, disaster recovery, and other skills while continuing to serve your community. 
